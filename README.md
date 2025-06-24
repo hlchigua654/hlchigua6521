@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://hl223.pages.dev/">黑料网</a>
 
-点击访问：<a href="https://hl284.pages.dev/">黑料网</a>
+点击访问：<a href="https://hl284.pages.dev/">今日吃瓜</a>
 
 点击访问：<a href="https://hl242.pages.dev/">抖音黑料</a>
 
@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://hl284.pages.dev/">黑料大事记</a>
 
-点击访问：<a href="https://hl242.pages.dev/">抖音黑料</a>
+点击访问：<a href="https://hl242.pages.dev/">精彩影视</a>
 
 点击访问：<a href="https://heiliaochiguada.pages.dev/">91黑料</a>
 
